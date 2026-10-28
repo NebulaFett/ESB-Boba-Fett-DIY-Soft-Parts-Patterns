@@ -1,4 +1,4 @@
-# ESB Boba Fett — DIY Soft Parts Patterns
+# ESB Boba Fett - DIY Soft Parts Patterns
 
 DIY sewing patterns for *The Empire Strikes Back* Boba Fett costume.
 
